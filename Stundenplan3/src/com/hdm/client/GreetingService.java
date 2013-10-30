@@ -15,6 +15,3 @@ fgdfgdf
 
 
 zzrtztzr
-
-
-thtrth
